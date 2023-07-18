@@ -1,4 +1,4 @@
-### Hi there 👋
+### I am from volta redonda kkkkkk xd
 
 <!--
 **Kaua2123/Kaua2123** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
