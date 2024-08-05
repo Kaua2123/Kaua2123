@@ -1,6 +1,6 @@
 ## Olá! Seja bem vindo, me chamo Kauã Paixão. 👋
 
-### Tecnologias que mais uso
+### Stack
 
 <br>
 
